@@ -4,6 +4,6 @@ I am a data analyst with 5 yrs experience working in a fast-paced, dynamic envir
 
 - 🔭 I am currently pursuing Master's in Data analytics from Georgia Institute of Technology.
 - 👯 I would be excited to collaborate on any opportunities that can align with these interests of mine!
-- 📫 Please reach me at pallavishine.24@gmail.com
+- 📫 Please reach me at pallavisharma2492@gmail.com
 
 
